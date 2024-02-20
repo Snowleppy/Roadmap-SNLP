@@ -42,8 +42,8 @@ Interested in joining the $SNLP journey? Here's how you can get involved:
 
 To never miss an update and to engage with the $SNLP community, follow us on:
 
-- Telegram: [https://t.me/+n0hLLUC4a6c3ZTll]
-- Twitter: [https://twitter.com/SNOWLEPPY]
+- Telegram: [SNOWLEPPY | $SNLP](https://t.me/+n0hLLUC4a6c3ZTll)
+- Twitter: [@snowleppy](https://twitter.com/SNOWLEPPY)
 - Website: [https://www.snowleppy.io/]
 
 ## Join the $SNLP Adventure
